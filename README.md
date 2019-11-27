@@ -1,1 +1,1 @@
-Meu nome é fulanin, tô aqui mais um dia!
+Meu nome é fulanin, tô aqui mais um dia! To no cursin de git e github.
